@@ -32,10 +32,10 @@ Week 7: [500 words reflective report on your (Why, what, where, when & how) cont
 ## Links
 
 * [Research Pack]()
-[Meta-narrative outline]()
-[Twine Production]()
-[Formative Presentation]()
-[Summative Presentation]()
+* [Meta-narrative outline]()
+* [Twine Production]()
+* [Formative Presentation]()
+* [Summative Presentation]()
 
 
 ## Other Content
