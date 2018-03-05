@@ -33,8 +33,8 @@ Week 7: [500 words reflective report on your (Why, what, where, when & how) cont
 
 * [Research Pack](https://docs.google.com/document/d/1QS9UqpzDvQ_-x4P3VX8jK7uCzffugWZkBSSaohrWKR8/edit?usp=sharing)
 * [Meta-narrative outline](https://docs.google.com/document/d/1x4O3-50GVSAHYanWJgf6i5NjqjCyn5dZ1YjVke8qhcA/edit?usp=sharing)
-* [Twine Production](https://drive.google.com/file/d/1d5NpZGPDHWbRRsPvAv5lVI1P1O5J_UCh/view?usp=sharing)
-* [Formative Presentation]()
+* [Twine Production](https://drive.google.com/drive/folders/1A5t4wH7BPg-MvbgFUhgAZ1ovvGMNSloj?usp=sharing)
+* [Formative Presentation](https://docs.google.com/presentation/d/136NRTsnk0ezIj8oSdB0EdHUo7uxrx4bQPDWZ5EICWaQ/edit?usp=sharing)
 * [Summative Presentation]()
 
 
