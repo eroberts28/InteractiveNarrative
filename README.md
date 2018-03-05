@@ -38,17 +38,13 @@ Week 7: [500 words reflective report on your (Why, what, where, when & how) cont
 * [Summative Presentation]()
 
 
-## Other Content
-
-
-
 ### Peer-learning
 
 Week 1: [The Dogon Dancers versus The Mystery Plays](https://docs.google.com/presentation/d/1Ab7xk7U-nZ7DNySuMjZqXhHmDV37ZXBQSaf9_3YOjdk/edit?usp=sharing)
 
-Week 2:[Pick your favourite film, analyse it with the three act theory and the hero's journey theory.]()
+Week 2:[Pick your favourite film, analyse it with the three act theory and the hero's journey theory.](https://docs.google.com/presentation/d/12fLdvoTiTTMoEqRlhF70FXk20EN-gDHhTJGdEAcVyD8/edit?usp=sharing)
 
-Week 3: [Relationship]()
+Week 3: [Relationship](https://docs.google.com/presentation/d/1TJ3FudOO8cUywJMF1NQsQsyC985Rer_B4apGKWZB1PQ/edit?usp=sharing)
 
 Week 4: [Leadership](https://docs.google.com/presentation/d/14KEdLV4t-d5zRH4vi9fVoj_088v3NKW74UDnU5XRt0c/edit?usp=sharing)
 
