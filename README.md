@@ -33,8 +33,9 @@ Week 7: [500 words reflective report on your (Why, what, where, when & how) cont
 * [Research Pack](https://docs.google.com/document/d/1QS9UqpzDvQ_-x4P3VX8jK7uCzffugWZkBSSaohrWKR8/edit?usp=sharing)
 * [Meta-narrative outline](https://docs.google.com/document/d/1x4O3-50GVSAHYanWJgf6i5NjqjCyn5dZ1YjVke8qhcA/edit?usp=sharing)
 * [Twine Production](https://drive.google.com/drive/folders/1A5t4wH7BPg-MvbgFUhgAZ1ovvGMNSloj?usp=sharing)
+* [Images for Twine](https://drive.google.com/drive/folders/1fQpEJ1cV4xPQrvvzoKts5IKBssL3deLp)
 * [Formative Presentation](https://docs.google.com/presentation/d/136NRTsnk0ezIj8oSdB0EdHUo7uxrx4bQPDWZ5EICWaQ/edit?usp=sharing)
-* [Summative Presentation]()
+* [Summative Presentation](https://docs.google.com/presentation/d/1d3LOj-9S-fUdDZMmB6gY5Ko5ko7qNHSA-dVFEBPvlTY/edit#slide=id.g3464e98d38_0_1)
 
 
 ### Peer-learning
